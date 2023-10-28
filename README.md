@@ -1,4 +1,4 @@
-### Hi there 👋
+## Hi there 👋
 ## My name's Annette, it's nice to meet you
 
 ### Why Data Analytics? 

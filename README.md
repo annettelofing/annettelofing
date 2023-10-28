@@ -25,7 +25,7 @@ I love data analytics because it is systematic, investigative, and focuses on pr
 -->
 
 ## 👋🏼 Connect with Me 
-- [LinkedIn](https://www.linkedin.com/in/annette-orrick-12a579138/ "LinkedIn")
+- [LinkedIn](https://www.linkedin.com/in/annette-lofing-12a579138/ "LinkedIn")
 - [Medium](https://medium.com/@thenetta101 "Medium") 
 
 
